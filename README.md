@@ -65,8 +65,8 @@ Aberto a projetos freelance e colaborações.
 
 ## 📬 Contato
 
-🔗 LinkedIn: (coloque aqui seu link)  
-📧 Email: (coloque seu email profissional)
+🔗 LinkedIn: https://www.linkedin.com/in/luiz-carlos-barrelin-j%C3%BAnior-4483b33b1?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
+📧 Email: luiz.junior@sou.fafram.com.br
 
 ---
 
